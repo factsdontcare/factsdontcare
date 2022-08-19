@@ -10,3 +10,5 @@
 ![flag](https://i.ytimg.com/vi/thPv_v7890g/hqdefault.jpg)
 
 ### ok folks
+
+### I like Homelander better than any other hero, succession is my favorite show, and The Ben Shapiro Show is also my favorite. I want to learn as much computer programming as possible. Computer programming is important becasue its the future
